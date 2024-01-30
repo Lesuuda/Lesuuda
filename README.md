@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **lesuudaljamani@gmail.com**
 
-- ⚡ Fun fact **I'm nI am not lazy; I'm on energy-saving mode**
+- ⚡ Fun fact **I'm not lazy; I'm on energy-saving mode**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
